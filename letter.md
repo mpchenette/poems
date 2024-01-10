@@ -31,5 +31,21 @@ and I cannot seem to find it, would you mind helping me?
 this verse is short a letter yet depite my earnest plea,
 i cannot seem to find it, would you mind helping me?
 
-I surveyed the many letters in this poem, though it's short    thoughn instead of but               // explored/surveyed
-but my gaze can't seem to find all twenty-six, think you could help?
+I surveyed the many letters in this poem,                                                                             though it's short                   // explored/surveyed
+though my gaze can't seem to find all twenty-six, think you could help?
+
+bjq
+
+
+
+I surveyed the many letters in this poem,
+though they're few, quick but true
+but my gaze just cannot find all twenty-six,
+what about you?
+
+I surveyed the many letters of this poem,
+quick and true,
+but my gaze can't seem to find all twenty-six.
+What about you?
+
+abcdefghijklmnopqrstuvwxyz
